@@ -213,7 +213,7 @@ The busiest routes (SFO–LAX, LAX–SFO, JFK–LAX) do **not** have high averag
 ## 📧 Contact
 
 **Shivanshu**
-- 📧 Email: shivanshubhardwaj0403@gmail.com
+- 📧 Email: shivanshubhardwajofficial@gmail.com
 - 💼 LinkedIn: https://www.linkedin.com/in/shivanshu-bhardwaj-884243417/
 - 🐙 GitHub: github.com/shivanshubhardwaj0403/
 
